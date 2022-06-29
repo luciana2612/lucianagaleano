@@ -1,2 +1,1 @@
-
-va de nuevo
+Listo, ya entendi
